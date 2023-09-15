@@ -1,4 +1,4 @@
 talk to me about scp 079 pleaseeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeeee                                                                                              
 
-https://github.com/DELUXEB0MB/DELUXEB0MB/assets/125908389/f08d163e-7cf2-4d59-9ca7-4eb7095468b5
+https://github.com/DELUXEB0MB/DELUXEB0MB/assets/125908389/dcc20e02-9fa8-4fd4-bb64-1702d29d1f55
 
