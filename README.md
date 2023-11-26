@@ -1,4 +1,4 @@
-this game is slowlu making me go insane (eyes turns red as my fangs grow)
+pony town is supposed to be a game about Socializing and making friends. Hope that helps to clear things up for most of u!
 
 1st Rentry is pony town info. 2nd is just the main one about me! bahaiaiaiaiia
 
