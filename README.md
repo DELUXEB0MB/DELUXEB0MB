@@ -1,4 +1,4 @@
-pony town is supposed to be a game about Socializing and making friends. Hope that clears everything for most of you!!!!
+Tahnks to anyone who doodled in my straw page!!! :3 i love looking at them!
 
 1st Rentry is pony town info. 2nd is just the main one about me! bahaiaiaiaiia
 
