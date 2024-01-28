@@ -1,4 +1,4 @@
-Tahnks to anyone who doodled in my straw page!!! :3 i love looking at them!
+if u clicked on my profile cause u thought i had "touch discomfort" just know i put that there intentionally and i do not have TD LOL
 
 1st Rentry is pony town info. 2nd is just the main one about me! bahaiaiaiaiia
 
