@@ -1,4 +1,4 @@
-if u clicked on my profile cause u thought i had "touch discomfort" just know i put that there intentionally and u kinda fell into the foolishness
+have an awsmong day
 
 1st Rentry is pony town info. 2nd is just the main one about me! bahaiaiaiaiia
 
