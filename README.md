@@ -1,4 +1,5 @@
 **it wont let me put on Guestbook but DONT PUT UR EMAIL THERE OKAY! have a nice day**
  -
- ![https://github.com/DELUXEB0MB/DELUXEB0MB/assets/125908389/dcc20e02-9fa8-4fd4-bb64-1702d29d1f55](https://i.imgur.com/4w95fFl.gif)  
+<p align="center">
+   <img src="https://i.imgur.com/71QjYu9.gif" width="498" height="158"/
 
