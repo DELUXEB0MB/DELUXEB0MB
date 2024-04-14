@@ -9,4 +9,6 @@ he ୭ it⠀⠀Armenian ୭ Swede⠀⠀autistic
 <br>
 <a href="https://rentry.co/AWFULtown">Pt info</a> ⠀ <a href="https://deluxeb0mb.123guestbook.com/">guestbook</a> ⠀ <a href="https://github.com/Iobotomy">MY BF :3</a>
 <br><br>
-
+</p>
+<p align="center">
+<img src="https://i.imgur.com/Xg9be0i.gif"width="101" height="57"/> <img src="https://i.imgur.com/CaGdzbx.png"width="101" height="57"/> <img src="https://i.imgur.com/6xJ1WpG.png"width="101" height="57"/> <img src="https://i.imgur.com/YX3p2vL.png"width="101" height="57"/>
