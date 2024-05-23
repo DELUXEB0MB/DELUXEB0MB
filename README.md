@@ -7,7 +7,7 @@ __ <b>Rayios</b> ୭ <b>Jason</b> __
 <br>
 he ୭ it⠀⠀Armenian ୭ Swede⠀⠀autistic
 <br>
-<a href="https://rentry.co/AWFULtown">Pt info</a> ⠀ <a href="https://deluxeb0mb.123guestbook.com/">guestbook</a> ⠀ <a href="https://github.com/Iobotomy">MY BF :3</a>
+<a href="https://rentry.co/AWFULtown">Pt info</a> ⠀ <a href="https://retrospring.net/@DELUXEB0MB">Restrospring</a> ⠀ <a href="https://github.com/Iobotomy">MY BF :3</a>
 <br><br>
 </p>
 <p align="center">
