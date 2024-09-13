@@ -1,12 +1,20 @@
 <p align="center">
-   <img src="https://i.imgur.com/y0hf1R0.png" width="130" height="130"/>
+   <img src="https://i.imgur.com/6cBCWnp.gif" width="500" height="90"/>
 </p>
 <p align="center">
-<b>Rayios</b> / <b>Jason</b>
+<b>Rayios</b> / <b>Jason🫧</b>
+<br>
+<b> hey guys check the links for about meeeee and SIGN MY ATABOOK ! If u want.....
+<br>
+<a href="https://github.com/Iobotomy">check my boyfriend out i love him</a>
 <br>
 </p>
+<be>
 <p align="center">
-<a href="https://rentry.co/AWFULtown">Pt info</a> ⠀ <a href="https://deluxeb0mb.atabook.org/">Atabook</a> ⠀ <a href="https://github.com/Iobotomy">MY BF :3</a>
+<img src="https://i.imgur.com/y0hf1R0.png"width="50" height="50"/> 
+</p>
+<p align="center">
+stamp spams bellow for fun u can ignor it
 <br><br>
 </p>
 <p align="center">
