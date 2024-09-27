@@ -1,5 +1,3 @@
-<p align="center">
-   <img src="https://i.imgur.com/6cBCWnp.gif" width="500" height="90"/>
 </p>
 <p align="center">
 <b>Rayios</b> / <b>Jason🦈 </b>
