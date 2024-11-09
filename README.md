@@ -3,7 +3,7 @@
 <b>Rayios</b> / <b>Jason🦈 </b>
 <br>
 <p align="center">
-<b> hey guys check the links for about meeeee and SIGN MY ATABOOK ! If u want.....
+<b> hey guys check the links for about meeeee and SIGN MY ATABOOK !
 <br>
 <a href="https://github.com/Iobotomy">check my boyfriend out i love him</a>
 <br>
