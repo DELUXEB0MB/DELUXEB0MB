@@ -5,7 +5,7 @@
 <p align="center">
 ─── ୭ 🪸 ୭ ───
 <br>
-<a href="https://rentry.co/AWFULtown">rentry</a>  .  <a href="https://imready.straw.page">Strawpage</a>  .  <a href="https://deluxeb0mb.atabook.org/">Atabook</a>
+<a href="https://rentry.co/AWFULtown">rentry</a>  .  <a href="">Strawpage</a>  .  <a href="https://deluxeb0mb.atabook.org/">Atabook</a>
 <br>
 taken 🦈 08.13.23
 <br>
