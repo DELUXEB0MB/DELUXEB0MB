@@ -8,6 +8,7 @@
 <a href="https://rentry.co/AWFULtown">rentry</a>  .  Strawpage  .  <a href="https://deluxeb0mb.atabook.org/">Atabook</a>
 <br>
 ME HEART BELONGS TO SOMEONE! 🦈 08.13.23
+<p align="center">
 if you still anything that i made i WILL find you brah
 <br>
 <p align="center">
