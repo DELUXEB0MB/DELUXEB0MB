@@ -1,12 +1,16 @@
 </p>
 <p align="center">
-<img src="https://files.catbox.moe/xuue15.gif"width="341" height="40">
+<img src="https://files.catbox.moe/uioqmo.jpg"width="200" height="200">
+</h4>
 <br>
 <p align="center">
+<br>
 ─── ୭ 🪸 ୭ ───
-<br>
-<a href="https://rentry.co/AWFULtown">rentry</a>  .  Strawpage  .  <a href="https://deluxeb0mb.atabook.org/">Atabook</a>
-<br>
-ME HEART BELONGS TO SOMEONE! 🦈 08.13.23
+<p align="center">
+<br> <a href="https://rentry.co/AWFULtown">rentry</a>  /    <a href="https://alucard64.straw.page/">strawpage</a> /   <a href="https://alucard64.straw.page/">atabook</a>
+<br> my <a href="https://github.com/Iobotomy">love ꨄ︎ </a> haii
+
 <p align="center">
 I am a big fan of a certain <a href="https://deadbydaylight.wiki.gg/wiki/Danny_Johnson_alias_Jed_Olsen">Ghostface</a>
+<br> Art by @ space-glasgow ^_^
+<br>
