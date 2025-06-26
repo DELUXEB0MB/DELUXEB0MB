@@ -9,7 +9,4 @@
 <br>
 ME HEART BELONGS TO SOMEONE! 🦈 08.13.23
 <p align="center">
-if you steal anything that i made i WILL find you brah
-<br>
-<p align="center">
 I am a big fan of a certain <a href="https://deadbydaylight.wiki.gg/wiki/Danny_Johnson_alias_Jed_Olsen">Ghostface</a>
