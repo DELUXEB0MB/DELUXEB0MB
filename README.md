@@ -7,7 +7,7 @@
 <br>
 ─── ୭ 🪸 ୭ ───
 <p align="center">
-<br> <a href="https://rentry.co/AWFULtown">rentry</a>  /    <a href="https://alucard64.straw.page/">strawpage</a> /   <a href="https://deluxeb0mb.atabook.org/">atabook</a>
+<br> <a href="https://rentry.co/AWFULtown">rentry</a>  /    <a href="https://c4stlevania.straw.page/">strawpage</a> /   <a href="https://deluxeb0mb.atabook.org/">atabook</a>
 <br> my <a href="https://github.com/Iobotomy">love ꨄ︎ </a> haii
 
 <p align="center">
