@@ -6,4 +6,4 @@
   remaking someday
 <br>
 <p align="center"> 
-If you like Castlevania, Dead by Daylight, Mega man x or Minecraft LETS BE #OOMFS !!!!!!!!!!!!!
+If you like Castlevania, Dead by Daylight, Mega man x or Minecraft (including horror mods and Monster school) LETS BE #OOMFS !!!!!!!!!!!!!
