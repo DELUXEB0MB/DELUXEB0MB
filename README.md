@@ -1,6 +1,6 @@
 </p>
 <p align="center">
-<img src="https://files.catbox.moe/2knro3.png"width="600" height="575">
+<img src="https://files.catbox.moe/2knro3.png"width="500" height="575">
 <br>
 <p align="center"> 
   remaking someday
