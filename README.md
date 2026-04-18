@@ -3,7 +3,7 @@
 <img src="https://files.catbox.moe/2knro3.png"width="500" height="380">
   <br>
 <p align="center"> 
- <img src="https://files.catbox.moe/srfaqd.png"width="300" height="60">
+ <img src="https://files.catbox.moe/srfaqd.png"width="300" height="55">
 <br>
 <p align="center"> 
 <i>He/it ✭ Adult </i></p>
