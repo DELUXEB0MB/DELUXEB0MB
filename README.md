@@ -13,4 +13,4 @@
 <i> Rentry is about Pony town info , Strawpage is just about me generally  </i></p>
 </p>
 <p align="center">
-<img src="https://files.catbox.moe/jaockp.png"width="99" height="55"> <img src="https://files.catbox.moe/t4apog.gif"width="99" height="55"> <img src="https://i.postimg.cc/4dDnvK58/tumblr-pinqczm-Q4X1xzybrpo4-100.png"width="99" height="55"> 
+<img src="https://files.catbox.moe/jaockp.png"width="99" height="55"> 
