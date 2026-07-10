@@ -10,7 +10,7 @@
 <p align="center"> 
 <i> C+H is much welcomed! Sign my <a href="https://deluxeb0mb.atabook.org/">Atabook</a> too ok? ^.^ </i></p>
 <p align="center"> 
-<i> Rentry is about Pony town info , Strawpage is just about me generally  </i></p>
+<i> will have new pt info soon! , Strawpage is just about me generally  </i></p>
 </p>
 <p align="center">
 <img src="https://files.catbox.moe/jaockp.png"width="99" height="55"> 
