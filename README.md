@@ -8,3 +8,4 @@
 <p align="center"> 
 <i> ill do this better when github and catbox moe arent working together to MESS UP MY PICTURES!!!!!! </i></p>
 </p>
+$${\color{red}Welcome \space \color{lightblue}To \space \color{lightgreen}Github}$$
