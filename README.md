@@ -19,6 +19,3 @@
 <a href="https://deluxeb0mb.atabook.org/">Atabook</a> $\color{#a9bfeb}{ノ}$ <a href="https://fluffle.cc/awfultown">Fluffle</a> $\color{#a9bfeb}{ノ}$ <a href="https://c4stlevania.straw.page/">Strawpage</a> $\color{#a9bfeb}{ノ}$ <a href="https://github.com/HuskPresence">Alt Github</a> $\color{#a9bfeb}{ᯓ★}$
   <p align="center"> 
 <img src="https://file.garden/aoXokxgw8mGCzSst/432t" width="450px">
-
- <p align="center">
-"ᴮᵘᵗ ʷʰᵃᵗ ᴵ ᵈᶦᵈ ᶜᵃⁿ'ᵗ ᵇᵉ ᵘⁿᵈᵒⁿᵉ. ᴾˡᵉᵃˢᵉ, ˡᵉᵗ ᵐᵉ ᵃᵗᵒⁿᵉ ᶠᵒʳ ᵐʸ ˢᶦⁿˢ."
