@@ -1,7 +1,7 @@
 </p>
 <div align="center">
  
-<img src="https://file.garden/aoXokxgw8mGCzSst/plush" width="30px"> ![](https://komarev.com/ghpvc/?username=DELUXEB0MB&color=063970&base=1062&style=plastic&label=✧𝕊ouls)
+<img src="https://file.garden/aoXokxgw8mGCzSst/jng8p6.gif" width="30px"> ![](https://komarev.com/ghpvc/?username=DELUXEB0MB&color=063970&base=1062&style=plastic&label=✧𝕊ouls) <img src="https://file.garden/aoXokxgw8mGCzSst/nrhodx.gif" width="30px">
 <p align="center"> 
 <img src="https://file.garden/aoXokxgw8mGCzSst/432t" width="450px">
  
