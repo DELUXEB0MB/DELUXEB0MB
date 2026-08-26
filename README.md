@@ -1,6 +1,10 @@
 </p>
-<p align="center">
- <img src="https://files.catbox.moe/o0puf3.webp"width="349" height="138">
+<div align="center">
+ 
+<img src="https://file.garden/aoXokxgw8mGCzSst/plush" width="30px"> ![](https://komarev.com/ghpvc/?username=DELUXEB0MB&color=063970&base=1062&style=plastic&label=𝕊ouls)
+
+<img src="https://file.garden/aoXokxgw8mGCzSst/wdiowef" align="left" width="405px">
+
   <p align="center">
 <br>
 <p align="center"> 
