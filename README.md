@@ -5,7 +5,7 @@
 <p align="center"> 
 <img src="https://file.garden/aoXokxgw8mGCzSst/432t" width="450px">
  
-<img src="https://file.garden/aoXokxgw8mGCzSst/wdiowef" align="left" width="305px">
+<img src="https://file.garden/aoXokxgw8mGCzSst/wdiowef" align="left" width="350px">
 
 <img src="https://file.garden/aoXokxgw8mGCzSst/gfergrqg" width="450px">
 <br>
