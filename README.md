@@ -16,6 +16,9 @@
 <i> $\color{#87a7e8}{C+H}$ $\color{#87a7e8}{Friendly!}$ $\color{#87a7e8}{Even}$ $\color{#87a7e8}{if}$ $\color{#87a7e8}{im}$  $\color{#87a7e8}{with}$ $\color{#87a7e8}{friends!!!}$ $\color{#87a7e8}{:-)}$ $\color{#87a7e8}{I'm}$ $\color{#87a7e8}{just}$ $\color{#87a7e8}{rlly}$ $\color{#87a7e8}{shy}$
 
 <p align="center"> 
-<a href="https://deluxeb0mb.atabook.org/">Atabook</a> $\color{#87a7e8}{ノ}$ <a href="https://fluffle.cc/awfultown">Fluffle</a> $\color{#87a7e8}{ノ}$ <a href="https://c4stlevania.straw.page/">Strawpage</a> $\color{#87a7e8}{ノ}$ <a href="https://github.com/HuskPresence">Alt Github</a>
+<a href="https://deluxeb0mb.atabook.org/">Atabook</a> $\color{#a9bfeb}{ノ}$ <a href="https://fluffle.cc/awfultown">Fluffle</a> $\color{#a9bfeb}{ノ}$ <a href="https://c4stlevania.straw.page/">Strawpage</a> $\color{#a9bfeb}{ノ}$ <a href="https://github.com/HuskPresence">Alt Github</a> $\color{#a9bfeb}{ᯓ★}$
   <p align="center"> 
 <img src="https://file.garden/aoXokxgw8mGCzSst/432t" width="450px">
+
+ <p align="center">
+"Bᴜᴛ ᴡʜᴀᴛ I ᴅɪᴅ ᴄᴀɴ'ᴛ ʙᴇ ᴜɴᴅᴏɴᴇ. Pʟᴇᴀsᴇ, ʟᴇᴛ ᴍᴇ ᴀᴛᴏɴᴇ ғᴏʀ ᴍʏ sɪɴs."
