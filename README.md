@@ -3,7 +3,7 @@
  
 <img src="https://file.garden/aoXokxgw8mGCzSst/plush" width="30px"> ![](https://komarev.com/ghpvc/?username=DELUXEB0MB&color=063970&base=1062&style=plastic&label=𝕊ouls)
 
-<img src="https://file.garden/aoXokxgw8mGCzSst/wdiowef" align="left" width="405px">
+<img src="https://file.garden/aoXokxgw8mGCzSst/wdiowef" align="left" width="305px">
 
   <p align="center">
 <br>
